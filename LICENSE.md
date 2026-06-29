@@ -1,4 +1,4 @@
-
+Experience pull lucky blocks like never before with best pull lucky blocks Script, the #1 Script. Includes auto-farm and god mode for unbeatable
 
 
 
